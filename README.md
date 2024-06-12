@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dhobirajan
+- 👋 Hi, I’m Mr.RAJAN KUMAR
 - 👀 I’m interested in (Full Stack Web devlopment)🎯🎯
 - 🌱 I’m currently learning diffrents programming languages and DSA🤠..
 - 📫 How to reach me ... follow on instagram @ll_im_rajan_ll
